@@ -12,5 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about models of Statistics
 - 📫 How to reach me: yulei.xia@duke.edu
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: Allergic to cat fur, yet here I am, a proud parent of 7 British Shorthairs. Go figure!
--->
+- ⚡ Fun fact: Allergic to cat fur, yet here I am, a proud parent of 7 British Shorthairs.
